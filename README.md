@@ -1,2 +1,0 @@
-# Okriade
-☆deGamerS
